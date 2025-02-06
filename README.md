@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently doing B.Tech with Cumputer Science and Engineering from Amritsar group of college, punjab,I have six month works on Mis(Management of information System) in OEL(Optimus Electronic Limited),Noida and I am currently learning Mern full stack developer and i am currently Intership in Web Development from Afame Technology.  <br>
+I am Currently Working in YUTO India PVT LTD Noida Electroic city. My Desgination is SAP ERP . Also I have six months Experiance in  Mis(Management of information System) in OEL(Optimus Electronic Limited),Noida and I am currently learning Mern full stack developer and i have  already done my  Intership program  in Web Development from Afame Technology.  <br>
 
 
 ## 🌐 Socials:
