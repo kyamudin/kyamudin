@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Currently Working in YUTO India Pvt Ltd. Noida Electronic city. My Desgination is SAP ERP . Also I have six months Experiance in Mis(Management of information System) in OEL(Optimus Electronic Limited),Noida and I am currently learning Mern full stack developer and i have already done my Intership program  in Web Development from Afame Technology.<br>
+I am Currently Working in YUTO India Pvt Ltd & My Desgination is SAP ERP. Also I have six months Experiance in Mis(Management of information System) from  OEL(Optimus Electronic Limited),Noida and I am currently learning Mern full stack developer and i have already done my Intership program  in Web Development from Afame Technology and i have six months traaning  from ducat india pvt ltd from noida electronic city form sector 63 .<br>
 
 
 ## 🌐 Socials:
